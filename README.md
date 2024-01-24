@@ -1,2 +1,2 @@
 # Anatovia-paulo
-A tarefa da edução não é somente Alfabetizar , mas sim humanizar almas.
+A tarefa da educação não é somente Alfabetizar , mas sim humanizar almas.
